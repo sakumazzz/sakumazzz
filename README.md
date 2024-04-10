@@ -1,5 +1,5 @@
 ---
-<img src="https://watermelon.crd.co/assets/images/gallery02/4a97a568.gif?v=2a41aca3"/> - ' roblox "place" made to appeal to "robloxians" '/ 'sun, moon and star, to these i bid adieu' fans, DC fans or enstarries please hmu !!! i swear i don't bite :D (w2i tho i'm usually offtab.., sorry 😞)
+<img src="https://watermelon.crd.co/assets/images/gallery02/4a97a568.gif?v=2a41aca3"/> - ' roblox "place" made to appeal to "robloxians" '/ 'sun, moon and star, to these i bid adieu' fans, DC fans or enstarries please int !!! i swear i don't bite :D (w2i tho i'm usually offtab.., sorry 😞)
 
 <img src="https://watermelon.crd.co/assets/images/gallery02/4a97a568.gif?v=2a41aca3"/> - redoing my rentry but gimme a decade or so and it'll be linked here
 
